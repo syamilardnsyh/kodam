@@ -1,1 +1,1 @@
-# CEK KHODAM 2024 GUYS !!!
+# Copyright &copy; 2024
